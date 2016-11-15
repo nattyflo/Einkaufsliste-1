@@ -1,6 +1,6 @@
 **Lebenslauf**  
   
-![Alternativer Text](/Volumes/Daten/HFU\ 3.\ Semester/Open-Source/Praktikum/Uebung4/bild.png)  
+![nur ein Beispiel](https://commons.wikimedia.org/wiki/File:Example_de.jpg "Beispielbild")  
 **1992** Gebohren  
 **1995-1998** Kindergarten  
 **1998-2003** Grundschule  
