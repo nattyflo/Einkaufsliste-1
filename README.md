@@ -1,6 +1,6 @@
 **Lebenslauf**  
   
-![nur ein Beispiel](https://commons.wikimedia.org/wiki/File:Example_de.jpg "Beispielbild")  
+![nur ein Beispiel](https://4.bp.blogspot.com/-Hzm3f_Bcvtc/VzcK7w-xQgI/AAAAAAAASsk/7m-UGt7Q0F0OCmLMH82l5ZTBd1aUjeJLwCLcB/s1600/a-ok-smiley.png)  
 **1992** Gebohren  
 **1995-1998** Kindergarten  
 **1998-2003** Grundschule  
