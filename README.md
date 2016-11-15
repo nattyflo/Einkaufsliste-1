@@ -1,4 +1,4 @@
-**1992** Gebohren
+**1992** Gebohren  
 **1995-1998** Kindergarten  
 **1998-2003** Grundschule  
 **2003-2008** Realschule  
